@@ -19,3 +19,10 @@ An easy recipe to make delicious Potato Puncakes, Draniki!
 [Archived Link](https://web.archive.org/web/20240227143637/https://tastesbetterfromscratch.com/mississippi-mud-brownies/)
 
 My grandmas mississippi mud recipe is a lot different. This one has marshmallows?
+
+
+
+## [Quick and Easy Refrigerator Pickles](https://www.onceuponachef.com/recipes/quick-and-easy-dill-pickles.html)
+[Archived Link](https://web.archive.org/web/20251125053128/https://www.onceuponachef.com/recipes/quick-and-easy-dill-pickles.html)
+
+A quick and easy way to make pickles at home.
