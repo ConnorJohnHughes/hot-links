@@ -10,6 +10,11 @@ A small visual tutorial on how to draw a cat.
 
 A small visual tutorial on how to draw a rat.
 
+## [Medieval Art – Historical Overview, Characteristics and Examples](https://www.invaluable.com/blog/medieval-art/?srsltid=AfmBOoowKm5pnbw5XXnt-IpNVeaSkKAFKU6W43Ie5eTDkdM0FVdIPFkA)
+[Archived Link](https://web.archive.org/web/20251125054846/https://www.invaluable.com/blog/medieval-art/?srsltid=AfmBOoowKm5pnbw5XXnt-IpNVeaSkKAFKU6W43Ie5eTDkdM0FVdIPFkA)
+
+An article all about medieval art and the historical overview, different ages, and styles 
+
 ## [Mona Lisa Wikipedia](https://en.wikipedia.org/wiki/Mona_Lisa)
 [Archived Link](https://web.archive.org/web/20240804032632/https://en.wikipedia.org/wiki/Mona_Lisa)
 
